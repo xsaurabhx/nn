@@ -1,2 +1,3 @@
 # unemployed-software-engineers
 this is the beginning of something big
+any indian or anyone with a engineering degree if is unemployed and wants to work on software developing projects , this is the place . this is new , a setup . i am done looking for big companies to hire me for some few fuckinf bucks . damn there are so many people like me . i want to create a opportunity for them . come and join this startup . give me a bit of your time and we can do something very big together . ofcourse this will be without money for first few days .if we succeed we will have a lot to share . hope your anticipation
